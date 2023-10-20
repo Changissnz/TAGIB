@@ -1,4 +1,5 @@
 # Part I
+## a monologue from a respectable one
 
 "Put down your arms, keyboard warrior, and I shall grant you eternal salvation. Why I know
 that there is a God but I am his representative. Please do not think of me as a silly willy
@@ -31,6 +32,7 @@ aunt Marie and I deeply in love with each other after our relationship started d
 to your bad behavior, keyboard warrior." 
 
 # Part II
+## monologue from Aunt Marie, follow-up from Part I
 
 "This is your aunt Marie, nephew, and I strongly advise you heed the gentle
 words of Lord Commodore Marshall. The Lord Commodore only wants you to become
@@ -88,6 +90,7 @@ Sincerely,
 Your Aunt Marie."
 
 # Part III 
+## follow-up to part II
 
 "How are you, Gregoyonuger? It's your friend, the keyboard warrior. I've
 been experiencing a lot of difficulty ever since I've been unmasked by
@@ -156,6 +159,7 @@ Sincerely,
 Your keyboard warrior friend."
 
 # Part IV
+## response from Gregoyonuger
 
 "I'm glad to introduce myself to you, keyboard warrior. I will not reveal my 
 real name for obvious reasons. I am only Gregoyonuger to you at least for now.
@@ -213,6 +217,7 @@ Sincerely,
 Gregoyonuger"
 
 # Part V
+## the fifth installment of the series
 
 "It's the girl next door, keyboard warrior. I am reaching out to you because
 I understand your trials and pains. You have gotten far in your quest, but
@@ -276,6 +281,7 @@ You know that I am the one and only realest hope you have. Otherwise, I swear th
 you will die mateless if God was the first thing that exists!"
 
 # Part VI
+## another letter from Lord Commodore Marshall
 
 From: The Lord Commodore Marshall
 To: The Keyboard Warrior 
@@ -350,6 +356,7 @@ Take care now, keyboard warrior, and please heed my thoughts for whatever
 your will wants."
 
 # Part VII
+## keyboard warrior's response to the girl next door
 
 To: The Girl Next Door  
 From: The Keyboard Warrior
@@ -410,6 +417,7 @@ things that you have mentioned, and I will exert the greatest of my efforts
 in ensuring that those wondrous fantasies of yours get fulfilled."
 
 # Part VIII
+## Aunt Marie's congratulations to the keyboard warrior's new relationship
 
 To: The Keyboard Warrior  
 From: Aunt Marie
@@ -496,6 +504,7 @@ Sincerely,
 Your Aunt Marie"
 
 # Part IX
+## the chief admiral makes contact with the keyboard warrior
 
 To: The Keyboard Warrior  
 From: Chief Admiral Roumannios de la Cruziyez
@@ -585,6 +594,7 @@ Sincerely,
 Chief Admiral Roumannios de la Cruziyez"
 
 # Part X
+## Lord Commodore receives bad news from 2nd-in-command
 
 From: Captain Alleudegren  
 To: The Lord Commodore Marshall
@@ -650,6 +660,7 @@ Yours truly my lord,
 Alleudegren"
 
 # Part XI
+## Gregoyonuger tells his issues to the keyboard warrior
 
 To: The Keyboard Warrior  
 From: Gregoyonuger
@@ -713,6 +724,7 @@ Sincerely,
 Gregoyonuger"
 
 # Part XII
+## keyboard warrior wants his romance to continue on
 
 From: The Keyboard Warrior   
 To: Janice, the girl next door
@@ -793,6 +805,7 @@ so that we will forever be unbreakable in the face of adversity.
 Will you marry me, Janice?"
 
 # Part XIII
+## Lord Commodore sends his regards to Alleudegren
 
 From: The Lord Commodore Marshall   
 To: Captain Alleudegren
@@ -868,6 +881,7 @@ Sincerely,
 The Lord Commodore Marshall"
 
 # Part XIV
+## Chief Admiral sends Aunt Marie his diplomatic thoughts
 
 From: Chief Admiral Roumannios de la Cruziyez   
 To: Marie, aunt of the keyboard warrior
@@ -960,6 +974,7 @@ Sincerely,
 Your Very Own Chief Admiral Roumannios de la Cruziyez" 
 
 # Part XV
+## the girl next door tells Aunt Marie some good/bad news!
 
 From: Janice, fiancee of the keyboard warrior   
 To: Marie, aunt of the keyboard warrior
@@ -1053,6 +1068,7 @@ Sincerely,
 Janice"
 
 # Part XVI
+## Captain Alleudegren makes his declaration to his unit against the keyboard warrior
 
 From: Captain Alleudegren   
 To: Unit Stop The Keyboard Warrior
@@ -1136,6 +1152,7 @@ Sincerely,
 Captain Alleudegren"
 
 # Part XVII
+## Gregoyonuger updates the keyboard warrior on business assignments
 
 From: Gregoyonuger   
 To: The Keyboard Warrior
@@ -1200,6 +1217,7 @@ Sincerely,
 Gregoyonuger"
 
 # Part XVIII
+## Lord Commodore has grand ambitions for the defeat of the keyboard warrior
 
 From: The Lord Commodore Marshall   
 To: Unit Stop The Keyboard Warrior
@@ -1310,6 +1328,7 @@ Sincerely,
 The Lord Commodore Marshall"
 
 # Part XIX
+## Janice discusses things such as the upcoming wedding to her fiancee
 
 From: Janice, fiancee of the keyboard warrior   
 To: The Keyboard Warrior
@@ -1395,6 +1414,7 @@ Sincerely,
 Janice"
 
 # Part XX
+## Unit Stop The Keyboard Warrior gets split into the Northern and Southern Cyber Divisions
 
 From: Lieutenant Jonatello de la Viraya   
 To: Unit Stop The Keyboard Warrior (excluding Captain Alleudegren)
@@ -1483,6 +1503,7 @@ Sincerely,
 Lieutenant Jonatello de la Viraya"
 
 # Part XXI
+## the cyberwar w/ the keyboard warrior takes a dramatic and futuristic turn..
 
 From: The Lord Commodore Marshall     
 To: Unit Stop The Keyboard Warrior
@@ -1559,6 +1580,7 @@ Sincerely,
 The Lord Commodore Marshall"
 
 # Part XXII
+## Chief Admiral is a diplomat and a leaker to Aunt Marie
 
 From: Chief Admiral Roumannios de la Cruziyez   
 To: Marie, aunt of the keyboard warrior
@@ -1673,6 +1695,7 @@ Sincerely,
 Chief Admiral Roumannios de la Cruziyez"
 
 # Part XXIII
+## Aunt Marie gives Janice, wife of the keyboard warrior, some life advice
 
 From: Marie, aunt of the keyboard warrior   
 To: Janice, wife of the keyboard warrior
@@ -1766,6 +1789,7 @@ Sincerely,
 Marie"
 
 # Part XXIV
+## the keyboard warrior wants to clear up some feelings with Janice, his wife
 
 From: The Keyboard Warrior   
 To: Janice, wife of the keyboard warrior
@@ -1856,6 +1880,7 @@ Sincerely,
 The Keyboard Warrior"
 
 # Part XXV
+## The Lord Commodore gives directives and information to the Chief Admiral about their nemesis
 
 From: The Lord Commodore Marshall   
 To: Chief Admiral Roumannios de la Cruziyez
@@ -1976,6 +2001,7 @@ Sincerely,
 The Lord Commodore Marshall"
 
 # Part XXVI
+## Chief Admiral is deeply offended by his treatment and consorts with one of his lovers
 
 From: Chief Admiral Roumannios de la Cruziyez   
 To: Olivia-Katerina de la Hernandez, a lover of the Chief Admiral
