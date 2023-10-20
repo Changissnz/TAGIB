@@ -2091,6 +2091,7 @@ Sincerely,
 Chief Admiral Roumannios de la Cruziyez"
 
 # Part XXVII
+## The Lord Commodore receives a message offering great help
 
 From: Executive Fritzjeral the Elizabethean   
 To: The Lord Commodore Marshall
