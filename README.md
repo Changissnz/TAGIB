@@ -2195,4 +2195,129 @@ Sincerely,
 
 Executive Fritzjeral the Elizabethean"
 
+# Part XXVIII 
+## The Lord Commodore responds to the Elizabethean
 
+From: The Lord Commodore Marshall
+To: Executive Fritzjeral the Elizabethean
+
+"Why, of course I remember you, Fritzjeral! I still fondly recall my first 
+encounter with you at the dinner party used to fundraise that one person who
+had a brilliant business idea to sell to the military industrial complex. I
+do not remember that person because their idea was boring and too technical. 
+You know how those scientist and intellectual types are, I am sure, with their
+lofty notions that do not go anywhere, only seeking to disrupt and denounce the
+socio-economic order that already exists, and the only way for them to bring their
+ideas into reality is to basically defraud the generosity of hierarchs such as I,
+the Lord Commodore Marshall. However, despite my differences with some of those
+scientist and intellectual types, I can tell you that they are much more gentle
+and honest about what they believe in and what they like to work in than some of
+these other folks that also want to join the hotshot business class. I am talking
+about those gambler and frontman types, the ones that are always claiming to 
+represent the downtrodden and destitute, and the same ones that say that they are
+humble and wise and whatever but then also say that they started from the bottom
+and now they are kings. Kings, they say. Oh, it is whatever, Fritzjeral! I guess 
+I went on a little tirade there telling you about some of the characters that I 
+have met in the business world. 
+
+I will tell you why I fondly remember you, out of all the characters that I met
+since I am in this prestigious position that I am in. It is because of your 
+handshake, since when I shook your hand, it was by far the softest hand I have
+ever shaken but it was no hand of a child. Instead, it was the hand of a 
+gentlewoman that had the privilege to never have had to do manual labor or even
+to slap children around to put them in their place. By process of elimination 
+then, I can only assume that whatever work you have done with your hands, 
+Executive, is unquestionably benevolent and even angelic, a stark contrast with 
+those that have had to do dirty work to get by in this world. And that is why I 
+trust you when you say that you are a woman of peace. I admit that I feel very 
+lucky to have had the fortune of your offering of help.
+
+Well, I think I have written enough as to formally re-introduce myself to you,
+Executive Fritzjeral. Now, I will offer you an account on my personal situation 
+on dealing with the keyboard warrior. The keyboard warrior was flagged by
+our cyber system a long time ago, more a decade, as a potential cyber threat.
+At that point in time, I was busy having to deal with more notorious people, so
+I paid him no attention. I thought that he would have straightened himself out 
+into a professional role by this time. And by professional role, I mean a job 
+position that is not the rebel leader of a cyber-militaristic force against the 
+official military forces, where I have been tasked with leading all operations 
+against him. Anyhow, it was about two years ago when official military forces 
+started conducting cyber-defensive offenses to deter people such as him from 
+moving on without having to answer for their deplorable cyber acts. I admit, many 
+of the operatives did not follow all their own rules in reinforcing the 
+socio-political order. But we had very little choice, Executive. There were too
+many offenses being taken by the good and the bad alike that official forces had
+to basically play the frustrating game of whack-a-mole. It was during this time,
+two years ago, that conventional electronic devices became fully connected to the 
+AI Hivemind. This absolute connection was further enabled by the secret invention
+of COMPQ5, the amazing nanotechnology that acts as an invisible medium of 
+computation, or should I say, anti-computation against its targets. With the
+invention of COMPQ5, the bridge connecting the cyber and physical worlds was
+enabled. But the powers that be knew that such capabilities, without mass
+awareness could lead to severe abuse. So COMPQ5 was kept as a novel underground
+technology, used only by the privileged during the most dire of times. 
+
+The keyboard warrior is special because he was able to survive our state-sponsored
+cyber assaults against him. Even some mobs that were compensated handsomely with 
+gold became involved in undermining and persecuting him. I set up a special 
+cyber-unit dedicated to tormenting the man using such techniques as putting him 
+into a self-destructive digital maze of his own making, continual exfiltration of 
+his personal life's information, as well as lawfare and economic warfare by
+blacklisting him so that he could never find the peace of a job that could pay
+him well enough for any of the basic human necessities. But throughout my campaign
+against him, I realized that the more techniques I employed against him, the less
+effective those techniques became. While I was commanding my forces to 
+metaphorically egg the guy into submission and humiliation, I inadvertently 
+promoted a great moral doubt amongst them. I believe it is this spiritual decay 
+on the part of my forces that led them astray to focus on other issues, perhaps 
+their own personal problems, instead of directly dealing with the keyboard 
+warrior to ensure his very own demise. I lost many fine soldiers, Executive, the
+greatest one of them all being Captain Alleudegren, a true star and model for my
+forces. But it was his failures, as a leader to deliver on the result of the 
+absolute defeat of the keyboard warrior, that forced my hand to punish him so that
+I can maintain control and order over my forces. Captain Alleudegren is now in
+a physical cyber-mind prison, where his intellectual and physical prowess is 
+being used to train our forces' artificial intelligence systems. Although he is
+a dear friend of mine, I do believe that his present contributions to artificial
+intelligence will enable me to be in command of a thousand, perhaps even a 
+million, cyber-military units on par with the captain's intellectual and physical
+capabilities. Admittedly, I would personally hate to be in his position because
+it is an exemplar of exploitation, but you can understand that based on the
+forecasted statistics, the pain and suffering of a few are well worth the victory
+and domination of many.
+
+You understand the grave threat that the keyboard warrior poses now, Executive.
+Through my forces' expansion and adoption of new cyber-military grade technology,
+our operations that continue to backfire against the keyboard warrior, in turn,
+enabled him to adapt his techniques to our power. He even had the initiative to
+scavenge every cyber battlefield that he won for our technology, which his forces
+then reverse-engineered, modified, and incorporated into their own cyber-arsenal.
+You are offering your help at the right time, my Elizabethean. My forces have
+been running low on supplies, especially cyber-weaponry. I would like you to
+immediately start production of the 1.1TR chips at a rate of 2 trillion per month.
+I did the mathematics in this ongoing cyber war with the keyboard warrior. My forces
+are expected to go through about 1.8 trillion of the 1.1TR chips, the latest 
+cutting-edge chip used for cyber-physical warfare brought to the commercial
+space due to my forces' demands. By producing 2 trillion of these chips a month,
+Executive, you can ensure that my forces do not become deprived of the best
+cyber-weaponry that our age has to offer. 
+
+That is all that I ask of you, Executive, and nothing more. I do not want to 
+burden you with any details of my forces' cyber war with the keyboard warrior. 
+I effectively put you on a censorship list so that you cannot access any of the 
+footage being captured. You, just as anyone else, are under the principle of 
+need-to-know. Besides, you are a gentlewoman of peace, and you need not corrupt
+your soul by consuming such media. And do not think that you are promoting
+bloodshed either, my Elizabethean. If a person is their actions, then to 
+clarify, the person is their direct actions based on the simple premise that
+a person is not culpable for evil that they themselves do not defeat. Oh, 
+but there is one other thing I ask of you. It is about the Chief Admiral 
+Roumannios de la Cruziyez, who I believe has secretly defected over to the 
+keyboard warrior or at least contemplating breaking off some members of my 
+forces and abandoning the war in the keyboard warrior's favor. If he contacts 
+you with anything, anything at all, please inform me on all the details, what 
+he says, who he is with, where he is, and so on.
+
+Sincerely, 
+
+The Lord Commodore Marshall"
