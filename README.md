@@ -2198,7 +2198,7 @@ Executive Fritzjeral the Elizabethean"
 # Part XXVIII 
 ## The Lord Commodore responds to the Elizabethean
 
-From: The Lord Commodore Marshall
+From: The Lord Commodore Marshall   
 To: Executive Fritzjeral the Elizabethean
 
 "Why, of course I remember you, Fritzjeral! I still fondly recall my first 
