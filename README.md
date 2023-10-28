@@ -2263,7 +2263,7 @@ gold became involved in undermining and persecuting him. I set up a special
 cyber-unit dedicated to tormenting the man using such techniques as putting him 
 into a self-destructive digital maze of his own making, continual exfiltration of 
 his personal life's information, as well as lawfare and economic warfare by
-blacklisting him so that he could never find the peace of a job that could pay
+blacklisting him so that he could never find the peace of a job that pays
 him well enough for any of the basic human necessities. But throughout my campaign
 against him, I realized that the more techniques I employed against him, the less
 effective those techniques became. While I was commanding my forces to 
