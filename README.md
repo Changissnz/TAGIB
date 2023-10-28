@@ -2235,7 +2235,7 @@ lucky to have had the fortune of your offering of help.
 Well, I think I have written enough as to formally re-introduce myself to you,
 Executive Fritzjeral. Now, I will offer you an account on my personal situation 
 on dealing with the keyboard warrior. The keyboard warrior was flagged by
-our cyber system a long time ago, more a decade, as a potential cyber threat.
+our cyber system a long time ago, more than a decade, as a potential cyber threat.
 At that point in time, I was busy having to deal with more notorious people, so
 I paid him no attention. I thought that he would have straightened himself out 
 into a professional role by this time. And by professional role, I mean a job 
@@ -2313,8 +2313,8 @@ clarify, the person is their direct actions based on the simple premise that
 a person is not culpable for evil that they themselves do not defeat. Oh, 
 but there is one other thing I ask of you. It is about the Chief Admiral 
 Roumannios de la Cruziyez, who I believe has secretly defected over to the 
-keyboard warrior or at least contemplating breaking off some members of my 
-forces and abandoning the war in the keyboard warrior's favor. If he contacts 
+keyboard warrior or is at least contemplating to break off some members of my 
+forces and abandon the war in the keyboard warrior's favor. If he contacts 
 you with anything, anything at all, please inform me on all the details, what 
 he says, who he is with, where he is, and so on.
 
