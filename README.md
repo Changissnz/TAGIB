@@ -2415,7 +2415,7 @@ doing when he is not managing business, since the business is obviously going
 under. I will tell you that the keyboard warrior is one of the members of the
 business that mysteriously withdrew a large sum of funds. What do you think he
 would need that much raw capital for? Could it be that your husband, the keyboard
-warrior, be planning to use that capital to fund cyber rebels to fuel ongoing
+warrior, be planning to use that capital to fund cyber rebels and fuel ongoing
 shadow wars that use cyber technology because cyber technology is the most 
 cutting-edge way to fight nowadays? Thankfully not, Janice. I feel very stressed
 and anxious having to write to you about my suspicions about your husband. I would
