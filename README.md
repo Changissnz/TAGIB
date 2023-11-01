@@ -2321,3 +2321,111 @@ he says, who he is with, where he is, and so on.
 Sincerely, 
 
 The Lord Commodore Marshall"
+
+# Part XXIX 
+## Aunt Marie gives Janice secrets about the present and warnings about the future
+
+From: Marie, aunt of the keyboard warrior   
+To: Janice, wife of the keyboard warrior
+
+"You must pity me, Janice, for this message of mine will greatly upset you. It
+appears that through our family business ordeal with Gregoyonuger, many details
+have been omitted from discussion. But now, this business that your husband serves
+as an executive in is silently crumbling like a house of cards. You are probably
+wondering why you were not informed of these issues already, given the great
+influence that the business claims to possess. The answer is as simple as knowing
+the importance of maintaining secrecy over our vulnerabilities, Janice. The press
+dare not talk about these business issues that are accumulating into greater 
+discontent over time. Any communication by anyone regarding our business issues 
+will most definitely implicate them more than it does the keyboard warrior and
+Gregoyonuger, all else being equal. 
+
+The big takeaway is that the business is facing insolvency. The theories and
+reasons behind why is plenty, but I personally would like to say that it is due
+to no deliberate or accidental errors on the part of the keyboard warrior or
+Gregoyonuger. Instead, it is due to the reactive nature of the changes happening
+to this society we live in. As you very well know, Janice, business is hard to
+build up, and the challenge of growing a business is compounded by maintaining
+the business's competitive livelihood. A lot of organizations are in a head-on
+competition with our business, Janice, and I am afraid that the board of 
+executives under Gregoyonuger have already quietly decided to dissolve the 
+organization. This is my best guess because I know of quite a few people there 
+that have been sneaking around, withdrawing funds from the company when doing so 
+is clearly against the rules and regulations. I do not want to tell you about any 
+more specifics. Doing so only spells more trouble in the form of unnecessary 
+stress for you, Janice, especially since you are already married to the brilliant 
+man that is the keyboard warrior. And so, your goal first and foremost should be 
+to forge and maintain a healthy and fair relationship with him.
+
+This is a warning to you about the inevitable problems of the internet business
+between the keyboard warrior and Gregoyonuger. People such as I must practice 
+the strategy of restraint from being so open about these problems, because 
+it would make us prey. Revealing such things ruin the originally benevolent
+judgments from the commoners that would then motivate them to take action 
+against us to further tarnish our high image. I apologize if you are taken aback 
+by this news I am providing you, and it is okay for you to feel personally 
+affronted by these revelations. But please, do not think of me as the bearer of 
+bad news. I am only revealing to you about the many things to come because of 
+these conditions. I am sorry, but in my personal objective to think,act, and most 
+importantly, appear as a selfless woman, albeit one of high society and the wealth 
+to prove it, I have neglected some basic tenets of common courtesy. Common 
+courtesy says that I should not have kept some problems a secret, and that my 
+words and actions do not merely serve as a performative defense against 
+adversaries potential or apparent. What I am admitting is that my role in society 
+requires a kind of selfishness that extends beyond ethno-cultural decorum, Janice. 
+I am not the only one that is selfish here, Janice. Your husband as well as 
+Gregoyonuger also took up the privilege of omitting vital information on the 
+well-being of the business from you. I am sure you have heard of the term
+'noble lie', darling, although you originally came from a lower middle-class
+standing. The 'noble lie' dictates that there is a need to maintain order through 
+the most noblest form of dishonesty. I am afraid that every person has their
+limits on achieving selflessness. Even you, Janice, are somewhat selfish because
+you chose to marry my nephew, the keyboard warrior, knowing full well that he 
+is related to members of high society such as me. Otherwise, you would have
+married that guy living across the street from you, who you told my nephew is
+so much more heroic than him because the guy is the strong and silent type.
+
+It won't be long now, Janice, at most four months, before the business goes 
+completely down under. And then the press will start publishing their yellow
+articles, what those people always do to take in small fractions of what people
+such as us rightfully own and control. One of the great travesties of our modern
+age, dear, is that our technological and intellectual progress cannot negate
+the storytelling and myth-crafting by people from various backgrounds, noble,
+ignoble, political operatives, foreign agents, and the law and the outlaws alike.
+You should be prepared for some unwanted attention, Janice. There will be those
+people prowling and snooping around, collecting all kinds of information on you.
+Try to not feed those people, because what goods that you do not offer them, they
+will try to spin it so that their listeners and followers will compensate them 
+with gold and power. 
+
+In the meantime as well as for the foreseeable future, you should be wise to
+maintain steady eyes on your husband, the keyboard warrior. I do not want to
+go out on a limb for writing this to you, but I believe that he may have
+knowledge or be directly involved in what some people have been whispering is a
+secret cyber war, or a shadow cyber war. I do not know the exact terminology
+these strange consultants and experts have been using, but what socio-economic
+turmoils that you are able to see before your very eyes, Janice, may simply be
+the most benevolent of symptoms from the great turmoil and suffering going on
+in the underground. I would hate to discover on one of these days that the
+keyboard warrior is a willing participant, or perhaps even a leader, in these 
+ominous cyber battles taking place that effectively push our democracy and 
+republic into the shade of social disorder and poverty. You, being the keyboard
+warrior's wife, are best poised to discover the specifics of what he has been
+doing when he is not managing business, since the business is obviously going
+under. I will tell you that the keyboard warrior is one of the members of the
+business that mysteriously withdrew a large sum of funds. What do you think he
+would need that much raw capital for? Could it be that your husband, the keyboard
+warrior, be planning to use that capital to fund cyber rebels to fuel ongoing
+shadow wars that use cyber technology because cyber technology is the most 
+cutting-edge way to fight nowadays? Thankfully not, Janice. I feel very stressed
+and anxious having to write to you about my suspicions about your husband. I would
+rather watch drama, eat exotic foods, and spend some time outdoors instead of 
+having to think about the monstrosities possibly connected to me. This problem
+with the shadow cyber-wars that are slowly reaching members of high society such
+as me serves me no benefits whatsoever, just to show you how fair life is 
+between the various strata of human society. I am giving you the responsibility of
+keeping an eye on your husband, and you might have to rein him in by any means
+necessary.
+
+Sincerely,     
+Aunt Marie"
