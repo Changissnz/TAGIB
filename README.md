@@ -2395,7 +2395,7 @@ ignoble, political operatives, foreign agents, and the law and the outlaws alike
 You should be prepared for some unwanted attention, Janice. There will be those
 people prowling and snooping around, collecting all kinds of information on you.
 Try to not feed those people, because what goods that you do not offer them, they
-will try to spin it so that their listeners and followers will compensate them 
+will try to spin it so that their listeners and followers compensate them 
 with gold and power. 
 
 In the meantime as well as for the foreseeable future, you should be wise to
@@ -2407,7 +2407,7 @@ these strange consultants and experts have been using, but what socio-economic
 turmoils that you are able to see before your very eyes, Janice, may simply be
 the most benevolent of symptoms from the great turmoil and suffering going on
 in the underground. I would hate to discover on one of these days that the
-keyboard warrior is a willing participant, or perhaps even a leader, in these 
+keyboard warrior is a willing participant, perhaps even a leader, in these 
 ominous cyber battles taking place that effectively push our democracy and 
 republic into the shade of social disorder and poverty. You, being the keyboard
 warrior's wife, are best poised to discover the specifics of what he has been
