@@ -2467,7 +2467,7 @@ which regions of the world have been mass-producing cyber-weaponry for the
 scoundrel keyboard warrior and his cyber-military. I, for the life of me, do not
 understand how anyone could possibly do business with such a hatemonger, 
 perfecting his prototypal ideas into cyber-military grade that our official 
-military forces to have to go up against. We are to use the intelligence gathered
+military forces have to go up against. We are to use the intelligence gathered
 from this cyber-reconnaissance operation to launch a multi-front attack that 
 flips the strengths of diversity and unpredictability of the keyboard warrior's 
 forces against him. We will rely on the network-attack strategy that you 
@@ -2510,8 +2510,8 @@ illegitimate power grab. Please heed my words, Cyber Alleudegren #1, that our od
 of success against the keyboard warrior are still slim. There are issues with our 
 supply chain's production of cyber-military units that impede on it meeting its 
 monthly goals. Resources are expensive, and we do not have any more than two 
-chances to deal the forces of the keyboard warrior a blow damaging enough that 
-would mute them into disability and death if not the shame of silence. The 
+chances to deal the forces of the keyboard warrior a blow damaging enough as 
+to mute them into disability and death if not the shame of silence. The 
 reasoning goes, that it is fundamental that we maintain unitary integrity amongst 
 our forces by offering them directions to victory that do not coincide with their 
 possible defection or abandonment of their posts. We are in a serious predicament, 
