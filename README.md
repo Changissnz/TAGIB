@@ -2529,8 +2529,8 @@ decrypted message he sent to one of his many lovers, as if the man can really
 love anything other than what things he can touch and smell. He thinks that I am a
 divisive force because I believe in quelling doubt and discontent through verbal
 if not physical confrontation. I am of the school where if there are secrets to
-be kept, there are no things to be mentioned about them, and they never should
-not lead to conspiracy that undermines the wholeness of our official military
+be kept, there are no things to be mentioned about them, and they should never
+lead to conspiracy that undermines the wholeness of our official military
 forces. However, with the Chief Admiral, there always seems to be secrets that
 are shared. And when secrets are shared but they are still called secrets, then
 some people are to be excluded, and other people, perhaps the same ones that are
