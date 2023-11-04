@@ -2429,3 +2429,144 @@ necessary.
 
 Sincerely,     
 Aunt Marie"
+
+# Part XXX
+## The Lord Commodore communicates some critical top-secret information to his new 2nd-in-command
+
+From: The Lord Commodore Marshall   
+To: Cyber Alleudegren #1
+
+"It is I, the Lord Commodore Marshall. There are many ongoing events that 
+require my detailed explaining to you and you only, since you have quite 
+literally arisen from the inferno and dust to reach the great achievement
+of your present station as my second-in-command. Your father, Captain Alleudegren,
+is very proud and honored that you have taken up the mantle to serve in my
+official military forces, as a testament to your allegiance that is required of
+someone with your background. The captain is now living in exile, for his own
+good, although I strongly urge you not to give too many thoughts about him. You
+and he will probably never meet face to face because all of your working years
+are to be dedicated to upholding our incredible nation's security and prestige.
+You are free to think and ponder on your ancestry, Cyber Alleudegren #1, but 
+I hope that you will not drive yourself into existential despair. You must
+recognize that you are not a human, by definition. You were brought into this
+world through the intellect and perfectionism of the best of engineers and 
+scientists as well as the laboring and suffering of your father that was used 
+to train your thinking and actions into an efficient cybernetic form, free from
+some of the trappings of moral restraint that is a staple of the human psyche.
+It is not about your status amongst other beings, but your role, Cyber Alleudegren
+#1. You have reached a great pinnacle in the spectrum of successes possible for 
+humans and non-humans alike, and should always look and think forward. 
+
+I am finished discussing some of the fine details about your background, and now
+I can spell out our next biggest objective. The cyber-reconnaissance operation
+that you headed last week has yielded some much needed insight into the logistics
+of the keyboard warrior's forces. Your operation did more than simply monitor 
+the activities and movements of the enemy. It also conducted intensive analysis
+of their battle techniques and supply chains. Because of this operation, we know
+which regions of the world have been mass-producing cyber-weaponry for the 
+scoundrel keyboard warrior and his cyber-military. I, for the life of me, do not
+understand how anyone could possibly do business with such a hatemonger, 
+perfecting his prototypal ideas into cyber-military grade that our official 
+military forces to have to go up against. We are to use the intelligence gathered
+from this cyber-reconnaissance operation to launch a multi-front attack that 
+flips the strengths of diversity and unpredictability of the keyboard warrior's 
+forces against him. We will rely on the network-attack strategy that you 
+personally came up with to enmesh his forces into a disorganization that really 
+bites them into paralysis, and in those ripe moments of their weakness, we will 
+execute the experimental swarming technique that our forces have been training in. 
+A most ironic finding about this swarming technique we are to use is that it is 
+quite inspired by the fighting strategy of the keyboard warrior, but it has been 
+modified to be much more efficient and intended to counter the enemy's swarming. 
+This is due in large part to our military forces' rapid mechanization from 
+predominantly human operators of cyber-technology to cyber-technology that can 
+regulate and act by its own accord that is usually always correct by human 
+standards. You can thank the supply chain under my command, I the Lord Commodore 
+Marshall, for this wise and swift improvement. 
+
+The multiple fronts of relevant focus, Cyber Alleudegren #1, are the family 
+members of the keyboard warrior, specifically his wife and aunt, the keyboard 
+warrior's trading partners, and a select few of his cyber-encampments. This 
+offensive should deal a crippling blow to the keyboard warrior's capabilities if 
+not damage his forces' morale. You and I will have a face-to-face conversation on 
+these fronts sometime later this week, so that our communications do not risk 
+interception. In the meantime, I would like you to look into the White Tiger's
+Son manufacturing facility, where many of us believe is responsible for 
+transporting precursor equipment for final assembly of the keyboard warrior's
+cyber-weaponry. The facility is owned by the Zheng Tao Kahnlieng Klan, and it has
+served as a very important commercial center of cutting-edge research and
+development for well over a half of a century. I do have fears that our strategy 
+may not work out so well, my friend. It is due to no one other than the Chief 
+Admiral Roumannios de la Cruziyez. I suspected the man to have been secretly 
+collaborating with the keyboard warrior about half a year ago, but I did not have 
+the time or the effort to engage in any deep investigation into the question. 
+However, as luck and justice united may have it, one of my cyber-analysts 
+uncovered some bleak facts. Through the extensive metadata your cyber-
+reconnaissance produced, the Chief Admiral Roumannios has most definitely 
+turned against me. I stand corrected. It is not just me that he has betrayed. But 
+rather, it is our entire official military forces, and that necessarily makes him 
+a traitor to our nation. Now, I do not want you to think that this discovery that 
+is most definitely not concocted by me for my own selfish gains to constitute an 
+illegitimate power grab. Please heed my words, Cyber Alleudegren #1, that our odds 
+of success against the keyboard warrior are still slim. There are issues with our 
+supply chain's production of cyber-military units that impede on it meeting its 
+monthly goals. Resources are expensive, and we do not have any more than two 
+chances to deal the forces of the keyboard warrior a blow damaging enough that 
+would mute them into disability and death if not the shame of silence. The 
+reasoning goes, that it is fundamental that we maintain unitary integrity amongst 
+our forces by offering them directions to victory that do not coincide with their 
+possible defection or abandonment of their posts. We are in a serious predicament, 
+and we cannot entertain notions by our own forces about what life could be if 
+there was peace and harmony when the evidence is as clear as the most beautiful 
+woman in the world on who initiated great threats to our democracy and republic 
+and who continues to do so. The answer is the keyboard warrior. And now the Chief 
+Admiral has decided to work against us, in the keyboard warrior's favor by the 
+process of elimination.
+
+It is imperative that we first deal with the Chief Admiral. I am tired of having
+to expend effort to try to fix the man's head straight. He clearly sees no
+better choice than to back the keyboard warrior. You should have read the 
+decrypted message he sent to one of his many lovers, as if the man can really
+love anything other than what things he can touch and smell. He thinks that I am a
+divisive force because I believe in quelling doubt and discontent through verbal
+if not physical confrontation. I am of the school where if there are secrets to
+be kept, there are no things to be mentioned about them, and they never should
+not lead to conspiracy that undermines the wholeness of our official military
+forces. However, with the Chief Admiral, there always seems to be secrets that
+are shared. And when secrets are shared but they are still called secrets, then
+some people are to be excluded, and other people, perhaps the same ones that are
+excluded, are to immensely lose. But he claims to believe in scale and unity, 
+and in his message to one of his lovers, thinks that I am a cold and callous
+leader versed in what he says is the Northern style of leadership. That does not
+sound very harmonious from my perspective. Wouldn't you agree, Cyber Alleudegren
+#1? I do not understand how people such as him can reach those thoughts without
+coming up with valid lines of reasoning beforehand, but the man is probably a 
+shameless person underneath. Shamelessness is an unfortunate aspect of the 
+human psyche. But the capability of many humans to act and drive further without 
+the chains of shame is then restricted by their own fears and equally as
+important, the resources that they have at their disposal since quarreling and
+bickering over privileges and ownership is a cumbersome aspect of human 
+existence, even when there are entire doctrines dedicated to eliminating the 
+idea of ownership and privilege. Look, Cyber Alleudegren #1. I do not really
+give a care about what the Chief Admiral does in his personal life. But his
+influence as a defector ripples out into our forces, casting fears of possible
+betrayals left and right. The Chief Admiral is an emotive person. He definitely
+has his skills and uses, but I recognized a long time ago that we would 
+eventually reach this impasse. He is the type to act very unreasonably, and he
+can be as cruel as me in many ways. But I noticed that every time I tried to 
+correct his mistakes, he puts up an emotive defense that draws the sympathies
+of his fellow emotive thinkers, as if I said outright expletives to him in any
+serious fashion. Maybe it is because I talk down to him, but it is simply 
+because that is my role and responsibility as the Lord Commodore Marshall. 
+
+It is because he thinks he is better than me. He also thinks that I think 
+I am better than him. I surely cannot blame him for his antagonism against me. 
+But now I have the evidence to settle the score with the man for good, outside
+of the realm of debate that needs to stay civilized in what is such an 
+artificially democratic atmosphere. A permanent memorial to the man that was once 
+the Chief Admiral Roumannios de la Cruziyez, to be permanently recorded in 
+our history books as a traitor to our democracy and republic that is our state. 
+That will be our first task, Cyber Alleudegren #1, before we move on to our 
+strategy against the keyboard warrior. 
+
+Sincerely,   
+The Lord Commodore Marshall"
