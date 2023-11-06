@@ -2341,7 +2341,7 @@ will most definitely implicate them more than it does the keyboard warrior and
 Gregoyonuger, all else being equal. 
 
 The big takeaway is that the business is facing insolvency. The theories and
-reasons behind why is plenty, but I personally would like to say that it is due
+reasons behind why are plenty, but I personally would like to say that it is due
 to no deliberate or accidental errors on the part of the keyboard warrior or
 Gregoyonuger. Instead, it is due to the reactive nature of the changes happening
 to this society we live in. As you very well know, Janice, business is hard to
