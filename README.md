@@ -2570,3 +2570,60 @@ strategy against the keyboard warrior.
 
 Sincerely,   
 The Lord Commodore Marshall"
+
+# Part XXXI
+## Gregoyonuger says his farewell with plans to leave the country
+
+From: Gregoyonuger   
+To: Marie, The Keyboard Warrior
+
+"I think it is a good time for me to start on my exit from these business 
+arrangements. Our lawyers have been busy working on the bankryptcy paperwork, 
+as well as dealing with the swarms of clientele and business partners. I see 
+that, through these circumstances, my role as a business associate is not only
+looking dubious, but outright unnecessary. I am not fretting though because I
+have enough capital to go live life somewhere else. That is right, I am relocating
+back to my homeland, after spending countless hours pondering over what to do.
+
+Here is my thinking. I no longer feel as though I am an active force in what I
+would like to do. To compound on these troubles as well as the interest rates
+that I am being further drowned in, I have been having family issues. Money is
+tight, and the insecurities by those that expect from those that provide have 
+been driving me mad. Completely bonkers. I am also thinking about getting a 
+divorce, but that is a separate issue.
+
+Now, I do not want you two to think that I am forsaking your interests. I tried
+to initiate conversation a few days ago, and there were little words spoken. I 
+felt as though I was a very awkward and unwanted presence in the room. If there
+are no further words to be exchanged, because I believe I have none, then you
+two can wholeheartedly expect such a decision by me. I hope business was as fun
+for me as it was for you, since we all agreed from the start what roles each of 
+us would play. Please do not expend any more stress or sorrows for it, since 
+the nature of our business requires the momentum and position that no one man
+or even one entire organization can architect on its own. We made money, we lost
+money, and could not find a way to obtain more money to cover our losses and
+keep on going. And every one of us needs to willingly accept those facts for 
+sanity.
+
+That is enough business talk, I believe. I would like to share some of my 
+observations with you two on what I am witnessing in this city. It looks as 
+though many businesses have been closing and getting boarded up. I have been
+seeing more homeless people this past half year on the streets. And I believe,
+based on some of the things I have been able to deduce, that some people may
+not like me. Perhaps it is because of my position as a businessperson.
+I am not a native citizen of this country, and seeing these circumstances make
+me feel as though I am becoming a drain on everyone else. Granted, my social
+circle has always been somewhat small even though I put up a facade of the 
+outgoing player. These were some of the factors that finalized my decision to
+relocate back home, where financial conditions sound as though they are likewise
+as dire, but at least I have a base of operations back there, in my home sweet
+home country.
+
+I left a dossier of information and links on each of your desks. Farewell, at 
+least for now. If you ever find some other lucrative hub where calculated
+investments will handsomely pay off for every person's betterment, then please
+do reach out again. But for the foreseeable future, think of me as gone. 
+
+Sincerely,
+
+Gregoyonuger"
