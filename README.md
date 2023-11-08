@@ -2578,7 +2578,7 @@ From: Gregoyonuger
 To: The Keyboard Warrior and Marie
 
 "I think it is a good time for me to start on my exit from these business 
-arrangements. Our lawyers have been busy working on the bankryptcy paperwork, 
+arrangements. Our lawyers have been busy working on the bankruptcy paperwork, 
 as well as dealing with the swarms of clientele and business partners. I see 
 that, through these circumstances, my role as a business associate is not only
 looking dubious, but outright unnecessary. I am not fretting though because I
