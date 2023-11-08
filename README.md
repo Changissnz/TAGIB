@@ -2575,7 +2575,7 @@ The Lord Commodore Marshall"
 ## Gregoyonuger says his farewell with plans to leave the country
 
 From: Gregoyonuger   
-To: Marie, The Keyboard Warrior
+To: The Keyboard Warrior and Marie
 
 "I think it is a good time for me to start on my exit from these business 
 arrangements. Our lawyers have been busy working on the bankryptcy paperwork, 
