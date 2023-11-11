@@ -2673,7 +2673,7 @@ thoughts from the past and even the moments of your life you spent with
 Olivia-Katerina de la Hernandez, for she is dead now, gone in this world with 
 such a selectively malicious side in an era that promised the greatest wonders
 and happiness from cyber-technology. Yes, life is unfair but you still have a
-future. Perhaps your future will not be as bright as others due to what the 
+future. Perhaps your future will not be as bright as others due to what 
 things you tell yourself you must do. I believe you are telling yourself that 
 you must fight. And fight you will after you make a swift recovery that serves
 as one of the most powerful motivators, the comeback that so surprises your
