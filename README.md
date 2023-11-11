@@ -2627,3 +2627,80 @@ do reach out again. But for the foreseeable future, think of me as gone.
 Sincerely,
 
 Gregoyonuger"
+
+# Part XXXII
+## A doctor sends a message to the Chief Admiral after an incident occurred
+
+From: Aaliyah de la Abadi, a lover of the Chief Admiral   
+To: Chief Admiral Roumannios de la Cruziyez
+
+"Stay strong, Chief Admiral! I am swiftly coming to you after recently received
+word of the terrible event that beset upon you, from a Trudy Truwelleanas! My,
+and poor Miss Olivia-Katerina de la Hernandez tragically passed shortly after this
+event, is what I have been told. I do not know how else to express my deep and
+genuine sentiments for your predicament, Roumannios. Even if you have been 
+severely disfigured by this completely unnecessary cyber-attack from an assailant
+unknown to most people, including me, I would still equally go out of my way to
+love you all the same. 
+
+You must rest up and heal in this world of modern medicine, where diseases and 
+afflictions that bear grave historical outlooks, can be effectively reversed.
+Miracles do happen to those that believe and also are conveniently near where the 
+cures and doctors are. And I believe you to be one of the lucky ones, even after 
+this terrible incident, which I am sure that you will rebound with a completely 
+justified vengeance against the ones that staged this cyber-attack against you. 
+I never knew that there was such darkness in this world, since I devoted much of
+my life to modern and futuristic medicine, and my career efforts are entirely 
+confined to the role of a healer, a constructive person. I guess that in my 
+steeped concentration to become an expert in the field that has made remarkable 
+advances from the applications of cyber-technology, I turned a blind eye to the 
+other edge of the sword, the sharper and lethal side that is cyber-technology in 
+militaristic form. I never could have imagined that cyber-attacks have evolved
+to carry such lethal force to its targets, but as I have said before, I am no 
+expert in the range of effects that cyber-technology carry in these modern days.
+
+I am indeed sorry for having the knowledge of the dire health that has befallen 
+you but also the ignorance of the suffering you have experienced from your own
+perspective, although I truly hold no ill intentions having admitted to you my
+ignorance. I have the capabilities to help you on your guaranteed path to 
+recovery, in which you will be restored to your previous physical and mental 
+greatness if not more, because I analyzed the reports given to me by the 
+central hospital through their cyber-informatic channels. While I am swiftly
+being transported to your location that you have kept secret from many due to
+your wolvish aggressors somewhere hot on your trail, I would like you to remain
+calm and to keep on resting. Furthermore, you need to forget all the negative 
+thoughts from the past and even the moments of your life you spent with 
+Olivia-Katerina de la Hernandez, for she is dead now, gone in this world with 
+such a selectively malicious side in an era that promised the greatest wonders
+and happiness from cyber-technology. Yes, life is unfair but you still have a
+future. Perhaps your future will not be as bright as others due to what the 
+things you tell yourself you must do. I believe you are telling yourself that 
+you must fight. And fight you will after you make a swift recovery that serves
+as one of the most powerful motivators, the comeback that so surprises your
+enemies that they will at least mentally tremble upon receiving word or sight
+of you as the survivor. 
+
+And then, the glory of the fight can come first. Then it will be your moment to
+seize what you have always believed you deserve but did not step up to take for
+yourself due to your restraint from a disciplined morality. Do not be so foolish 
+as to obsess over the semantics of your setbacks when it is still your vision 
+and your world in this near future that if heaven has its will, just and right, 
+grants you triumphant victories that effectively erase all the losses during your 
+journey, of many fights and changes of heart in who you are to fight with and what 
+to fight for. It is okay to make changes and take different stands. I, personally,
+wanted to be an actress when I was younger, but quickly switched over to the 
+medical field once I realized how slim my odds were as a woman that is not slim
+enough for the magazines.
+
+I am one that understands many things in dichotomies, especially life and death 
+due to my extensive experience in medicine. But in your case, I quickly remind
+myself that there are many things in this world that can be understood in 
+dichotomies. Alas, it is these dichotomies that I will gladly share with you in 
+order to grant you my blessings and good luck for your troubles past, present,
+and future. I will gladly sacrifice any unspecificed amount of time for you
+so that you will achieve a meaningful and long-lasting inner peace for the many 
+battles you are to take up in the near future for your own causes and motives.
+
+Sincerely,
+
+Aaliyah de la Abadi"
