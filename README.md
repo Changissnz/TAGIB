@@ -2720,7 +2720,7 @@ majesty as a human being be forever memorialized and shown its due respect.
 As for me, my full physical recovery has most definitely not come at the expense
 of modern medicine alone for I recover from my injuries with a soul twisted 
 and split by the human loss of what I have held dear. But I know not to look
-back on these setbacks with a sour attitude and a wretched heart. I 
+back on these setbacks with a sour attitude and a wretched heart.
 
 I had many doubts about my beliefs and who my true friends were before this
 event. I went about life in a dream-like and bubbly state that was neither 
@@ -2798,18 +2798,18 @@ speculative or intangible, merely shadow cyber-wars.
 
 But now, I believe the gig is up. There is no point in continuing on with the
 lies of the disguise of the true state of things outside of some people's 
-comfort zones of happy bubbles. Soon, word will reach them on what is really
-going on, and that is the official military forces are engaging in a 
-cannibalism of some variety by splitting into cyber-warring factions. Our
-number one enemy is now the Lord Commodore Marshall and his forces. To go up
-against such power and skill, although the man that leads them may be a 
-treacherous vermin, requires us to completely align ourselves with the keyboard
-warrior. Rest assured, this so-called cannibalism will be squashed in no time,
-now that the enemy that is the Lord Commodore Marshall has revealed himself as the 
-true source of division. He is the mouth that has been devouring us this entire
-time, and his feeding that started with spiritually and intellectually destroying
-us has advanced itself into an outright lethal cyber-attack against me due to 
-his own personal insecurities.
+comfort zones of happy bubbles. Soon, word will reach the general public
+on what is really going on, and that is the official military forces are 
+engaging in a cannibalism of some variety by splitting into cyber-warring 
+factions. Our number one enemy is now the Lord Commodore Marshall and his 
+forces. To go up against such power and skill, although the man that leads 
+them may be a treacherous vermin, requires us to completely align ourselves 
+with the keyboard warrior. Rest assured, this so-called cannibalism will be 
+squashed in no time, now that the enemy that is the Lord Commodore Marshall 
+has revealed himself as the true source of division. He is the mouth that has 
+been devouring us this entire time, and his feeding that started with our
+spiritual and intellectual destruction has advanced itself into an outright 
+lethal cyber-attack against me due to his own personal insecurities.
 
 I do not believe any of you can come up with a single credible reason to not
 completely realign against the Lord Commodore Marshall. Because of the Lord
@@ -2886,4 +2886,3 @@ by me to you!
 Sincerely, 
 
 The Lord Commodore Marshall"
-
