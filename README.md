@@ -2704,3 +2704,186 @@ battles you are to take up in the near future for your own causes and motives.
 Sincerely,
 
 Aaliyah de la Abadi"
+
+# Part XXXIII
+## Chief Admiral makes a wholehearted announcement to his base of support
+
+From: Chief Admiral Roumannios de la Cruziyez   
+To: His Followers and Sympathizers
+
+"If it was not for the several cyber-calendars that were next to me during my
+time of recovery, I would be lost for time as of now. But I am not, fully
+recovered and aware of the six months that passed since the devastating 
+cyber-attack that did more than try to ruin me. It is this same cyber attack that
+took the love of my life from this world. May Olivia-Katerina's beauty and 
+majesty as a human being be forever memorialized and shown its due respect.
+As for me, my full physical recovery has most definitely not come at the expense
+of modern medicine alone for I recover from my injuries with a soul twisted 
+and split by the human loss of what I have held dear. But I know not to look
+back on these setbacks with a sour attitude and a wretched heart. I 
+
+I had many doubts about my beliefs and who my true friends were before this
+event. I went about life in a dream-like and bubbly state that was neither 
+the life of the dream or the hells of nightmares. I was, in actuality, trapped
+in a trance that I could not break out of, a subjectivity that I did not enjoy.
+The torment of my life experience before my near-death experience miraculously
+went away after the event, a miracle that gave me a sense of spirituality on
+how to view things in more concrete and precise terms. These changes are about
+as profound as the unbelievable changes in modern medicine that enabled my
+full recovery from a horridly broken pseudo-survivor to someone as physically
+great as before and superior in mentality. A changed mind makes a changed man
+is the moral of this story, because I sincerely can never use the word `moral`
+in the same sentence as those that staged the cyber-attack against me. 
+
+Back in the days when I was a loyal soldier of the Lord Commodore Marshall, I 
+admit that I participated in things that go against the idea of unity, something
+that greatly upsets me even though I have never witnessed absolute unity before 
+but can only imagine a world of great unity and connectiveness, the only way for
+an everlasting harmony. And after I am done participating in those things, I am
+rewarded by him and his superiors in a way that is supposed to make me feel good.
+However, because I stay true to my own beliefs, I in fact cannot force myself to
+feel good. Believe me, I have tried to do just that before, but any of my attempts
+have only resulted in experiencing a roller-coasting contradiction of feelings,
+part of the hellhole of subjectivity that I described to you earlier. 
+
+I want to be able to wake up in the morning or to clarify, at any time of the day 
+or night, and think to myself at the things I sense before me that this is an 
+orderly world. This is a world where I am surrounded by beings that know what they
+are supposed to do. This is the place that I want to be in, where I can understand
+things any way I darn please, whether systematically by axiomatic dissection and
+logical ordering or through my faith alone. Instead, the world that the forces 
+that be, which most definitely do not favor my vision for the world I am supposed 
+to play an important role in, pressure me into extreme ways of thinking about my 
+surroundings and what I am in those surroundings as well as in and of myself.
+I do not want to think of the world in terms of faith and beliefs alone, or by
+having to understand and accept it through the lens of systematic thinking that
+inevitably becomes rigid. I realize now, the incorrect deficits and excesses of 
+the world that I surrounded myself in is due in great part to my allegiance to
+the Lord Commodore Marshall. These sad truths that I am stating to you should
+invigorate you to stand with me in these battles planned for the enemy forces
+and the putrid man who used to be my superior, but no longer, that leads them.
+
+I know that the complexity of life, from the microscopic layer all to the way to
+our social decorum, is not so readily simple uni-layer formulae. But it is the
+ultimate outcome that I see before my eyes, from the minutiae of insufferable
+individuals to the depression and underlying hysteria of the collective that 
+serve as my motivators now that I am awakened to correct and reform all that I
+have thought wrong with the people that I paid my respects and answered to.
+Our value systems, body of beliefs, what other terms that can be used, have
+been placed into a precarious position due entirely to the misplaced views of 
+those that claim to play a positive role in. The main culprit? Why, that would
+be the Lord Commodore Marshall, for sure, for sure. What is needed, after our 
+victory, is to deeply instill a healthy awareness of what should be expressed, 
+what should be done, and how to coexist with each other for a forward and singular 
+path towards the future, happily ever after or above and beyond depending on their 
+preference.
+
+I have the solution for the things I will set out to do after defeating the Lord
+Commodore Marshall, who is most definitely the one that entirely betrayed me and
+not the other way around. He is always telling others about how he intends to
+cyber-duel those he recognizes as enemies. I would have thought, that based on
+his position which requires at least one ounce of honor, that he would have done
+me at least the favor of not ordering a cyber-attack against me that I had no
+idea was coming. If he was truly an honorable person, he would have travelled to
+me, where we would duel in a cyber-match that would have determined who the
+next indisputable leader of the official military forces is. He made an extremely
+painful mistake by his offensive initiative. During all of these years while our
+official military forces had to wage a cyber-war against the keyboard warrior,
+it was I that was in charge of maintaining secrecy over all pertinent information.
+It was because of me that the cyber-war, where countless cyber-battalions have
+perished in their challenge to the keyboard warrior, was kept a secret from the
+general public of the nation that we serve. Because of me, the general public 
+remained clueless, and any talk about any cyber-war going on was deemed as 
+speculative or intangible, merely shadow cyber-wars. 
+
+But now, I believe the gig is up. There is no point in continuing on with the
+lies of the disguise of the true state of things outside of some people's 
+comfort zones of happy bubbles. Soon, word will reach them on what is really
+going on, and that is the official military forces are engaging in a 
+cannibalism of some variety by splitting into cyber-warring factions. Our
+number one enemy is now the Lord Commodore Marshall and his forces. To go up
+against such power and skill, although the man that leads them may be a 
+treacherous vermin, requires us to completely align ourselves with the keyboard
+warrior. Rest assured, this so-called cannibalism will be squashed in no time,
+now that the enemy that is the Lord Commodore Marshall has revealed himself as the 
+true source of division. He is the mouth that has been devouring us this entire
+time, and his feeding that started with spiritually and intellectually destroying
+us has advanced itself into an outright lethal cyber-attack against me due to 
+his own personal insecurities.
+
+I do not believe any of you can come up with a single credible reason to not
+completely realign against the Lord Commodore Marshall. Because of the Lord
+Commodore Marshall, I was forced to play a crucial role in structuring and
+enforcing a new kind of protectionism, the kind that is the cause of so much
+discontent and outrage from many people that may or may not be completely aware of 
+the limitations of this kind of rule. And during these years when we had to 
+battle the keyboard warrior, many of my closest associates slowly but surely
+disappeared due in great part to the punishing wrath of the Lord Commodore 
+Marshall for their failures against the keyboard warrior. This world that we 
+live in is a time of great change, and I am sure that you are aware that your 
+humanity is at stake due to the continual emergence of automation technologies.
+The Lord Commodore Marshall's forces are now at least sixty-percent fully 
+mechanized. We are, in fact, fighting with monsters of the kind that is least 
+human but that can be mistaken for human only because of the extensive 
+artificial intelligence training succeeded through the intrusion of the personal 
+lives of humans. Do not forget this because to win against this beast that has 
+fully shown its face to us, we should practice no restraints of morality or 
+cyber-war techniques. I personally have never been that fanatical about technology
+as the Lord Commodore Marshall. I found the development process and the usage of
+these products to go against my egalitarian outlook, but I never once raised this
+specific concern to the Lord Commodore Marshall while I was still a soldier to
+him, demonstrating my humility in the face of callous arrogance. There is the
+lack of necessity for emerging technologies to become mainstream. Due to the
+lack of knowledge which leads to the lack of control over these products, it is
+wiser that those technologies be reserved for only the rarest of situations or
+people.
+
+Another important reminder I would like to express is the Lord Commodore
+Marshall's treatment of those he considered threats. Based on my analyses, I do 
+not believe that any of us would be in this situation if it were not for the Lord
+Commodore Marshall's decades-long offensive against the keyboard warrior. His
+offensive that started off as physically civilized ironically drove the keyboard
+warrior to his successful standing in the present. It was through the wretched
+conditions that the Lord Commodore Marshall wrought upon the keyboard warrior,
+all of which culminated in the keyboard warrior obtaining the dangerous 
+nanotechnology COMPQ5, that have paved the way for the ultimate showdown between
+polarities, meaning I the Chief Admiral alongside the keyboard warrior and the 
+Lord Commodore Marshall. 
+
+I am grateful to be alive on this day to deliver to you all my message, my 
+solution after we depose of this Lord Commodore Marshall! Afterwards, we will
+rediscover what unity and collective understanding is all about. We will know
+not to blind ourselves into playing the roles for a rigid society we never played
+a part in planning out, or to become so fanatical and hungry for technological
+advancement when there are still many needy and destitute beggars on the streets
+of our nation. Any one of you can send me questions for your doubts, all of which
+I assure you is due to helpless pessimism. With me, you can expect to live
+afterwards in a world marked by underlying ignorance and assumptions but redeemed 
+through its collectivism. But with the Lord Commodore Marshall, many of you will 
+not happily survive according to his judgment. You may be less ignorant, more 
+aware of the facts, but the world that the Lord Commodore Marshall and his 
+supporters uphold is one that will demand more by dividing more so that each and 
+every one of you will be put into conflicting situations to win but it will all be 
+a sick game for the Lord Commodore Marshall to look down on. Just look at the way 
+the Lord Commodore Marshall has handled artificial intelligence systems, products
+that were initially proclaimed to be democratic tools that have since 
+morphed into utilities for the overarching concept of control, used to
+inflict potent pains on those they recognize as enemies. These systems are the
+commander that determines how to singly treat an individual while doubly 
+dealing with them. I would know, I was singly targetted by these artificial
+intelligence systems for death on the orders of the Lord Commodore Marshall.
+During the past few weeks before the attack, I was treated with acts of kindness
+and charity from those same systems, part of their double act so that I would
+fall into a modicum of ignorance in the event of their planned attack.
+
+We are to fight for the great return to a utopia long ago, both real and imagined 
+since the most authentic bliss should be within the immediate grasp by choice for 
+the mind or the body, that was so prime that it had to be entirely desecrated into 
+the ruins of the present by evils represented by the Lord Commodore Marshall. 
+We do not need to kneel in mercy now that the truth of what is evil is spelled out
+by me to you! 
+
+Sincerely, 
+
+The Lord Commodore Marshall"
+
