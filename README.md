@@ -2844,9 +2844,9 @@ not believe that any of us would be in this situation if it were not for the Lor
 Commodore Marshall's decades-long offensive against the keyboard warrior. His
 offensive that started off as physically civilized ironically drove the keyboard
 warrior to his successful standing in the present. It was through the wretched
-conditions that the Lord Commodore Marshall wrought upon the keyboard warrior,
+conditions the Lord Commodore Marshall wrought upon the keyboard warrior,
 all of which culminated in the keyboard warrior obtaining the dangerous 
-nanotechnology COMPQ5, that have paved the way for the ultimate showdown between
+nanotechnology COMPQ5, that paved the way for the ultimate showdown between
 polarities, meaning I the Chief Admiral alongside the keyboard warrior and the 
 Lord Commodore Marshall. 
 
