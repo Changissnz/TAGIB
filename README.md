@@ -2824,11 +2824,11 @@ live in is a time of great change, and I am sure that you are aware that your
 humanity is at stake due to the continual emergence of automation technologies.
 The Lord Commodore Marshall's forces are now at least sixty-percent fully 
 mechanized. We are, in fact, fighting with monsters of the kind that is least 
-human but that can be mistaken for human only because of the extensive 
-artificial intelligence training succeeded through the intrusion of the personal 
+human but that can be mistaken for human only because of their extensive 
+artificial intelligence training, succeeded through the intrusion of the personal 
 lives of humans. Do not forget this because to win against this beast that has 
 fully shown its face to us, we should practice no restraints of morality or 
-cyber-war techniques. I personally have never been that fanatical about technology
+cyber-war techniques. I personally have never been as fanatical about technology
 as the Lord Commodore Marshall. I found the development process and the usage of
 these products to go against my egalitarian outlook, but I never once raised this
 specific concern to the Lord Commodore Marshall while I was still a soldier to
