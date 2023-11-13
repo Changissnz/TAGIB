@@ -2835,7 +2835,7 @@ specific concern to the Lord Commodore Marshall while I was still a soldier to
 him, demonstrating my humility in the face of callous arrogance. There is the
 lack of necessity for emerging technologies to become mainstream. Due to the
 lack of knowledge which leads to the lack of control over these products, it is
-wiser that those technologies be reserved for only the rarest of situations or
+wiser for those technologies to be reserved for only the rarest of situations or
 people.
 
 Another important reminder I would like to express is the Lord Commodore
