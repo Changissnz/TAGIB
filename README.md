@@ -283,7 +283,7 @@ you will die mateless if God was the first thing that exists!"
 # Part VI
 ## another letter from Lord Commodore Marshall
 
-From: The Lord Commodore Marshall
+From: The Lord Commodore Marshall   
 To: The Keyboard Warrior 
 
 "It's me again, keyboard warrior. I am sitting here writing this to you, laughing
