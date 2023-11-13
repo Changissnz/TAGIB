@@ -2733,7 +2733,7 @@ as profound as the unbelievable changes in modern medicine that enabled my
 full recovery from a horridly broken pseudo-survivor to someone as physically
 great as before and superior in mentality. A changed mind makes a changed man
 is the moral of this story, because I sincerely can never use the word `moral`
-in the same sentence as those that staged the cyber-attack against me. 
+in the same sentence with those that staged the cyber-attack against me. 
 
 Back in the days when I was a loyal soldier of the Lord Commodore Marshall, I 
 admit that I participated in things that go against the idea of unity, something
