@@ -2886,3 +2886,136 @@ by me to you!
 Sincerely, 
 
 Chief Admiral Roumannios de la Cruziyez"
+
+# Part XXXIV
+## The Lord Commodore Marshall discusses some things with his consulting firm
+
+From: The Lord Commodore Marshall   
+To: Theresa Watkins, a private firm security consultant
+
+"Such folly I have read yesterday and an equal amount of folly on this day, 
+Theresa. I do not know why Chief Admiral Roumannios made such a proclamation
+with the sole purpose of swaying the views of all of his recipients. Sifting
+through the many messages that I have intercepted, the message he wrote stuck
+out based on my cyber-secure computer software system's artificial intelligence
+programs. I would like to thank you for your inputs into our force's automated
+decryptor intelligence, which has allowed me to reliably snoop in on any
+number of persons of interest, especially Chief Admiral Roumannios now that he
+has come forward to challenge me on the same scale as the keyboard warrior.
+
+Based on some of the things Roumannios wrote in his proclamation, it seems he
+has undergone a transformation into a believer without doubts of some sorts.
+I emphasize the phrase 'of some sorts' afterwards because I know of many 
+people immoveable from their beliefs that do not have the same kind of thinking
+as Roumannios. I openly note that I feel somewhat concerned, even intimidated,
+upon reading this proclamation. I do not think that Roumannios intended for
+someone such as me to be able to read his messages, but just as a crazed bull
+does not need to understand that the matador has a life outside of being just
+a matador in order to trample the matador to death, Roumannios also does not
+need to possess automated and human intelligence that mirrors my own to get
+lucky enough to do me harm.
+
+I have a difficult time understanding some of the statements that Roumannios
+put across. I wanted to do my own deeper analyses into them by the approach of
+hierarchical classification, in which I can use a cyber-labelling system to 
+ultimately determine the connections between his broad ideas to the manner
+of those ideas' exemplications to the specific syntax and arrangements of his
+words for expressing those ideas and exemplifications. But after making a
+few personal attempts, I have decided to forgo from making any more attempts.
+Having to think about things from his perspective does not do me any good.
+His proclamation is fueled by a wrath keen on maintaining a sane and humble
+tone to it, in order to appeal to his recipients that come from many backgrounds 
+based on any categorical perspective. Due to the hardline stance that I have
+had to taken, I no longer have the appetite for Roumannio's rhetoric of poetic
+justice. I prefer listening to the catchy but cliched hymns of post-modern
+musicians on repeat over and over again, just to let you know how repulsed I 
+am from wanting to empathize with Roumannios.
+
+Whatever kind of fire that Roumannios has planned might end up cannibalizing 
+itself, a kind of poetic justice that he would probably enjoy even though 
+he would be a loser in such events. His irrationality coupled with the skills
+and knowledge he obtained through his years in service make him quite the 
+contender, if I am being honest. I try not to detest some of the terms that he 
+used way too frequently to deliver the image of himself as a broad and fair 
+thinker of the most genuine in intentions for others. The paradigm of humanity is 
+complex, and his proposals can only mean leaving people to their own devices while 
+offering them little but dust, and that is the best case scenario that I can think 
+of. 
+
+I am not a professional politician, an important fact that needs to be stated.
+Because I am not so easily influenced by the extremities that is inevitable with
+today's bipolar political arrangements, I cannot take a mental stand and state
+that Roumannios is a far leftist or a far rightist, because that implies that
+I view his approach from what I think is a clear angle, most probably from the
+opposing end. I know there is an undeniable objectivity to classifications of
+political agents, but I am not specialized in that domain. I would like to 
+say that Roumannios is a far rightist that uses the rhetoric of far leftists
+to suit his aims of mass appeal. Therefore, when far rightism is coupled with
+far leftism, the result is far centrism. But then that would be a contradiction
+since I mentioned to others that there is no such thing as far-centrism, only
+centrism due to the most scientific visualization of the political spectrum.
+
+Roumannios thinks that I am the chief instigator behind these serious situations
+that people such as you,me, and him are in. I personally wanted from the start, 
+based my duties as a high-ranking member of society, to drive some people past 
+their limits while structuring their lives that are quickly approaching their 
+prime so that the end result is their talents being channeled into a kind of 
+dynamic greatness. But with the keyboard warrior, I started off with a civilized 
+but hardy approach on tackling his issues. Nothing too threatening, only a 
+perfect grasp of control over his daily life, activities, and interests. But
+no, the keyboard warrior went on and on and on to these renegade cyber-activities
+that then lead to him acquiring COMPQ5. With his obtaining COMPQ5, things 
+took a more serious and grave change since cyber-attacks that implement COMPQ5
+can use the nanotechnology as a medium that suits the offender's purposes. In 
+the case of the keyboard warrior, he was able to get the best of software 
+engineers to modify COMPQ5 to produce potently lethal effects. So there is that
+for my justification on why I did the things that I did in this chain of events
+that looks less like a chain to contain a beast than a spiralling horde of dark
+souls that I am tasked with defeating.
+
+I took advice from your firm to lay down the basic principles of rule in
+cyberspace. That is, there is the psycho-cyber layer, the cyber-social layer,
+and last but not least because it is the most potentially dangerous layer,
+the cyber-physical layer. Devised by me, this classification system allows me
+to efficiently channel my forces against perceived threats throughout their
+navigation across these different layers, dealing with them in manners aware
+with their own conditions by using artificial intelligence systems to target
+them on individualistic bases, even though those perceived threats might
+operate in mob-like behaviors. Singling out the keyboard warrior turned him 
+into a freak to be admired and followed, and after I realized this, I 
+became quite angry. It is not the admiration and the paparazzi that the 
+keyboard warrior wanted as his most valuable payoff, but the forces that he
+was able to acquire. I should have known that from the beginning, and now
+every time I think back on this mistake, I am tempted to bite my lips to
+quell the uncontrollable rage I want to let out.
+
+My forces are already predominantly fully mechanized, whilst the human elements
+are trained for more than just performance that can only woo the ladies and lans.
+However, with Roumannios expectedly siding with the keyboard warrior, I am going
+on and ordering the conversion of some of our programs into a more effective
+form to tackle these two condors. That is right, these two are no eagles, black
+or brown, or even hawks or falcons, but condors. Con...dors. Two of my favorite
+programs, Revealia and Persuasia, have already been modified and encoded into the 
+training material for my forces. These were superb programs your firm helped
+outsource the work for. As a reminder, Revealia is the program that presents its 
+audience a new set of truths after every conclusion they make, forcing them to 
+second-guess themselves, backtrack on their thinking and the actions that go along 
+with that thinking, and form new conclusions that are of a contrarian nature
+to the previous conclusions. In this way, the people cannot think of themselves as 
+credible thinkers, let alone actors that act on scrupulous and factful 
+information, only as hypocrites of the most folly variety. And Persuasia is the
+program that presents any arbitrary statement to the recepient regardless of the 
+degree of fallacy, and attaches seemingly objective metaphors and numbers to them, 
+all of which are to elicit emotive connections from the recepient, in the aims of 
+making that arbitrary statement be believed as true. Perhaps Roumannios will
+meet his twin ideologue one of these days.
+
+I am relieved to be able to share some of my insights and frustrations with you,
+Theresa. For the time being, meaning for the next full year, your firm's purpose 
+as a consultant to my forces' interests are no longer needed. However, you have
+my phone number, and I can certainly find some time of day or night (wink wink)
+to be able to spend some time with you, so that we can talk things out.
+
+Ta ta,
+
+The Lord Commodore Marshall"
