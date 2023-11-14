@@ -3029,7 +3029,7 @@ To: Theresa Watkins, a private firm security consultant
 "I have no need to introduce myself to you, Theresa Watkins. You spy! You 
 swine! I am going to go ahead and spell out what I want from your firm: the 
 treasure trove of information about the work contracted out to your organization 
-from the Lord Commodore Marshall. I want all the information compressed into your 
+from the Lord Commodore Marshall. I want all the information compressed into 
 two of your enterprise computers and silently transported to the location that I 
 will provide in a message at the time TXR21:32. 
 
