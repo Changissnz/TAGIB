@@ -3036,7 +3036,7 @@ will provide in a message at the time TXR21:32.
 My wife Janice and aunt Marie are dead. They were found in the ruins of the
 tundra halfway across the world, alongside the corpse of Chief Admiral Roumannios 
 de la Cruziyez. All of them were entirely naked, so I can already figure out
-what went on between the three of them before they died, from what is reported 
+what went on between the three of them before they died, from what was reported 
 over secure and shadowy channels as a cyber-attack by the Lord Commodore Marshall.
 But I can only imagine why Janice and Marie were all the way across the world in
 the first place, without once giving me any notification.
