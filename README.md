@@ -3044,7 +3044,7 @@ the first place, without once giving me any notification.
 Please do not be afraid of my plans for you, specifically, since you are a 
 mere educatissimi to me. That is, an educated person that does boring work and
 says boring things, and wears boring clothes, having sex with boring men, without
-really an authentic regard for the ramifications of your actions in a world
+really an authentic regard for the ramifications of their actions in a world
 that became so hyper-connected through the advances of the internet that people
 such as I have had to turn back to our prejudices, expressed or not. The reason
 why I told you about the passing of two of my close people is simply because
