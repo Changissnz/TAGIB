@@ -3019,3 +3019,56 @@ to be able to spend some time with you, so that we can talk things out.
 Ta ta,
 
 The Lord Commodore Marshall"
+
+# Part XXXV
+## The Keyboard Warrior makes a dramatic reappearance
+
+From: The Keyboard Warrior   
+To: Theresa Watkins, a private firm security consultant
+
+"I have no need to introduce myself to you, Theresa Watkins. You spy! You 
+swine! I am going to go ahead and spell out what I want from your firm: the 
+treasure trove of information about the work contracted out to your organization 
+from the Lord Commodore Marshall. I want all the information compressed into your 
+two of your enterprise computers and silently transported to the location that I 
+will provide in a message at the time TXR21:32. 
+
+My wife Janice and aunt Marie are dead. They were found in the ruins of the
+tundra halfway across the world, alongside the corpse of Chief Admiral Roumannios 
+de la Cruziyez. All of them were entirely naked, so I can already figure out
+what went on between the three of them before they died, from what is reported 
+over secure and shadowy channels as a cyber-attack by the Lord Commodore Marshall.
+But I can only imagine why Janice and Marie were all the way across the world in
+the first place, without once giving me any notification.
+
+Please do not be afraid of my plans for you, specifically, since you are a 
+mere educatissimi to me. That is, an educated person that does boring work and
+says boring things, and wears boring clothes, having sex with boring men, without
+really an authentic regard for the ramifications of your actions in a world
+that became so hyper-connected through the advances of the internet that people
+such as I have had to turn back to our prejudices, expressed or not. The reason
+why I told you about the passing of two of my close people is simply because
+I was able to trace the intelligence reports passed to the Lord Commodore Marshall
+all the way back to your firm. And then when I discovered it was your firm, I 
+used another cyber-algorithm to conduct local area network tracing. I hope you
+do not find it ironic that your firm's security protocols dictate that all
+computing activity gets logged in encrypted format to the computing cluster. 
+The computing cluster's information was accurately retrieved by me through
+my cyber-sword. I did not miswrite that. I do indeed own a cyber-sword that has 
+both physical and cyber capabilities. Back in the olden days when there was 
+no internet, I would have gladly destroyed any nemesis that stood in my path
+with my cyber-sword in the manner of a real sword. But times are indeed different.
+My new personal philosophy is that different times call for different swords with 
+different purposes. My cyber-sword can remotely crack over 99% of modern 
+quantum cryptography due to its use of COMPQ5. It can also remotely hack your
+genome even though we are separated by at least 2000 miles so that you end up
+with some terrible ailment, infertility or clinical insanity by brain tumor 
+amongst other things quite difficult to heal back from, even in this modern
+age of medicine. Physically striking you down with my cyber-sword would be too
+...what is the word...dischivalrous. No. No. I may be a monster now due to the
+loss of my wife Janice and my somewhat annoying Aunt Marie, but I still have 
+my code of manners for I was only a dog a short eleven years ago, the time of my 
+marriage to my wife. 
+
+Go ahead and do as I ask upon your receipt of the destination for those two
+enterprise computers."
