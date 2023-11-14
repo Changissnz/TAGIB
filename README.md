@@ -3004,9 +3004,9 @@ with that thinking, and form new conclusions that are of a contrarian nature
 to the previous conclusions. In this way, the people cannot think of themselves as 
 credible thinkers, let alone actors that act on scrupulous and factful 
 information, only as hypocrites of the most folly variety. And Persuasia is the
-program that presents any arbitrary statement to the recepient regardless of the 
+program that presents any arbitrary statement to the recipient regardless of the 
 degree of fallacy, and attaches seemingly objective metaphors and numbers to them, 
-all of which are to elicit emotive connections from the recepient, in the aims of 
+all of which are to elicit emotive connections from the recipient, in the aims of 
 making that arbitrary statement be believed as true. Perhaps Roumannios will
 meet his twin ideologue one of these days.
 
