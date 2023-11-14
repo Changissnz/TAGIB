@@ -2952,7 +2952,7 @@ political agents, but I am not specialized in that domain. I would like to
 say that Roumannios is a far rightist that uses the rhetoric of far leftists
 to suit his aims of mass appeal. Therefore, when far rightism is coupled with
 far leftism, the result is far centrism. But then that would be a contradiction
-since I mentioned to others that there is no such thing as far-centrism, only
+since I mentioned to others that there is no such thing as far centrism, only
 centrism due to the most scientific visualization of the political spectrum.
 
 Roumannios thinks that I am the chief instigator behind these serious situations
