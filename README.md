@@ -2926,7 +2926,7 @@ Having to think about things from his perspective does not do me any good.
 His proclamation is fueled by a wrath keen on maintaining a sane and humble
 tone to it, in order to appeal to his recipients that come from many backgrounds 
 based on any categorical perspective. Due to the hardline stance that I have
-had to taken, I no longer have the appetite for Roumannio's rhetoric of poetic
+had to take, I no longer have the appetite for Roumannio's rhetoric of poetic
 justice. I prefer listening to the catchy but cliched hymns of post-modern
 musicians on repeat over and over again, just to let you know how repulsed I 
 am from wanting to empathize with Roumannios.
@@ -2992,8 +2992,8 @@ quell the uncontrollable rage I want to let out.
 My forces are already predominantly fully mechanized, whilst the human elements
 are trained for more than just performance that can only woo the ladies and lans.
 However, with Roumannios expectedly siding with the keyboard warrior, I am going
-on and ordering the conversion of some of our programs into a more effective
-form to tackle these two condors. That is right, these two are no eagles, black
+on and ordering the conversion of some of our programs into more effective
+forms to tackle these two condors. That is right, these two are no eagles, black
 or brown, or even hawks or falcons, but condors. Con...dors. Two of my favorite
 programs, Revealia and Persuasia, have already been modified and encoded into the 
 training material for my forces. These were superb programs your firm helped
