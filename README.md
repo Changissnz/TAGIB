@@ -2898,7 +2898,7 @@ Theresa. I do not know why Chief Admiral Roumannios made such a proclamation
 with the sole purpose of swaying the views of all of his recipients. Sifting
 through the many messages that I have intercepted, the message he wrote stuck
 out based on my cyber-secure computer software system's artificial intelligence
-programs. I would like to thank you for your inputs into our force's automated
+programs. I would like to thank you for your inputs into our forces' automated
 decryptor intelligence, which has allowed me to reliably snoop in on any
 number of persons of interest, especially Chief Admiral Roumannios now that he
 has come forward to challenge me on the same scale as the keyboard warrior.
