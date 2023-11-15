@@ -2751,7 +2751,7 @@ or night, and think to myself at the things I sense before me that this is an
 orderly world. This is a world where I am surrounded by beings that know what they
 are supposed to do. This is the place that I want to be in, where I can understand
 things any way I darn please, whether systematically by axiomatic dissection and
-logical ordering or through my faith alone. Instead, the world that the forces 
+logical ordering or through my faith alone. Instead, the world of the forces 
 that be, which most definitely do not favor my vision for the world I am supposed 
 to play an important role in, pressure me into extreme ways of thinking about my 
 surroundings and what I am in those surroundings as well as in and of myself.
