@@ -3094,8 +3094,8 @@ played a starring role in. I want to emphasize that word, 'starring', to
 showcase your mastery of dramatism. Not only did you intentionally change the
 courses that many lives would have taken, but your approach placed less 
 emphasis on extinguishing the plight that some people and problems produced.
-Instead, it focused on the payoffs gained by specific persons, with 
-disproportionate repercussions, from maintaining cordial and commercial ties  
+Instead, it focused on the payoffs gained by specific persons, with
+disproportionate repercussions, from maintaining cordial and commercial ties
 with the plight. Your duplicity has spun far out of your own control, since 
 your power rests completely on networking. The last time I checked the statistics
 on networking, there was none because the world has been growing darker under
