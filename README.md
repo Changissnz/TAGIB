@@ -3115,7 +3115,7 @@ welfare for its own to be fed. Then the world will suffer another great loss
 of a dominant source of technological production. 
 
 You are part of the force that proliferated the decline of civilization. And 
-because I am not a sadist that does not enjoy watching its suffering, then my
+because I am not a sadist that enjoys watching it squirm and suffer, then my
 good disposition demanded I take new and bold actions to renew it back
 to a time so great that any writing or visualization of it, no matter the
 great degrees of their perfection, are regarded as heresy. To live a good 
