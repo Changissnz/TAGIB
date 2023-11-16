@@ -3168,7 +3168,7 @@ applying the concept of shooting without revealing location in new forms made
 compatible with cyber-technology, et cetera. You practiced a robust and agile 
 stance, but you were in charge of an over-expansion on capabilities without 
 substance. This world that you were in charge of became one where you had to rule 
-over it lest it be destroyed in trying. You promoted an imbalanced dichotomy that
+over it lest it be destroyed in your attempts. You promoted an imbalanced dichotomy that
 manifested itself as a unipolar world, one with an extreme that is bent on 
 preserving if not growing its disproportionate influence. You, in fact, betrayed 
 the designs of the evolutionary system you were supposed to guard. Your rule 
