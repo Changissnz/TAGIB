@@ -3153,7 +3153,7 @@ Admiral Roumannios, I cannot help but be thoroughly amused by his passing. He
 envisioned a future arrangement for himself in the nature of a triangle, that 
 is me and you and him, that would have been similar to the First Triumvirate. 
 But that fortunately is no longer possible. With the loss of Chief Admiral 
-Roumannios, the most idealistic visionary of usn all (although what would have
+Roumannios, the most idealistic visionary of us all (although what would have
 happened under his rule is entirely debatable now), is the loss of the possibility
 of empire. There is no more possibility of empire since it is my personal insight
 that an empire cannot be legimitately called an empire when it starts to shrink
