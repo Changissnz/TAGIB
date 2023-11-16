@@ -3072,3 +3072,153 @@ marriage to my wife.
 
 Go ahead and do as I ask upon your receipt of the destination for those two
 enterprise computers."
+
+# Part XXXVI
+## The Keyboard Warrior speaks out to the Lord Commodore Marshall
+
+From: The Keyboard Warrior   
+To: The Lord Commodore Marshall
+
+"I have acquired the power of experience and social networking to be able to
+challenge you in this message. Through the great deal of luck that was granted
+to me, and with that sheer amount of luck being partially your doings from your
+follies, I was in fact able to metaphorically rise to the top, a mere 15 years 
+after your first message to me. I do not want to think of myself as insane,
+but it was as if you helped circumstantially engineer my rise to power. My
+rise to power came at the cost of many people, from the sycophants and the
+aimless to those that can never be content. Even two of my closest ones along
+with Roumannios were not able to make it to this point in time. 
+
+Your influence has been dwindling due to these socio-economic turmoils that you
+played a starring role in. I want to emphasize that word, 'starring', to 
+showcase your mastery of dramatism. Not only did you intentionally change the
+courses that many lives would have taken, but your approach placed less 
+emphasis on extinguishing the plight that some people and problems produced.
+Instead, it focused on the payoffs gained by specific persons, with 
+disproportionate repercussions, from maintaining cordial and commercial ties  
+with the plight. Your duplicity has spun far out of your own control, since 
+your power rests completely on networking. The last time I checked the statistics
+on networking, there was none because the world has been growing darker under
+my emerging power. Every electro-computational network that is downed is an 
+additional encouraging cheer for me to continue my efforts working towards a 
+greater darkness. The metaphorical snowball has long ago started its roll downhill 
+so it is far too late for you or your techno-social complex to deter it without 
+also perishing in the process. I believe that your calculations, so geared to 
+maintaining their predictive accuracy by exertion of control over the factors, 
+was extraordinarily focused on yielding the greatest payoff from the metaphorical
+snowball's downhill roll before your forces would interdict it before its 
+unstoppably destructive impact. Your calculations have doomed you, Lord, is my
+sure-hearted prediction. Look at the powerful manufacturing Zheng Tao Kahnlieng 
+Klan, for instance. It has been losing business and soon, it will starve if it 
+cannot look outwards in its immediate vicinity to find sources of grain and 
+welfare for its own to be fed. Then the world will suffer another great loss 
+of a dominant source of technological production. 
+
+You are part of the force that proliferated the decline of civilization. And 
+because I am not a sadist that does not enjoy watching its suffering, then my
+good disposition demanded I take new and bold actions to renew it back
+to a time so great that any writing or visualization of it, no matter the
+great degrees of their perfection, are regarded as heresy. To live a good 
+life in a good civilization is entirely wholesome over having to struggle 
+every day just to have free time to entertain notions of a better world, 
+when those notions come from the minds and tongues of the most depraved.
+Truthfully, my efforts were almost entirely fueled by my personal discontent,
+but if what I believed was the cause of much of the discontent I see and feel
+is in fact incorrect, then I would not be where I am now, instead gone from 
+this world due to the harsh treatment by the natural world to the insanely
+inept.  
+
+I go about my inevitable steps towards making you meet your doom in a surefire
+way but with a cynical spirit. Your dramatism is probably no longer entertaining
+or profitable for you now at this stage in time, a stage before the great
+reawakening that virtually every being, human or not, helped advance through 
+their own individual excesses and restraints. With that said, I do not want 
+you to lose spirit just yet. I will be perhaps the last great challenge you 
+will come across in your life. 
+
+The deep skepticism that results from dramatism, what other people say is 
+indicative of a scarred psyche, is in fact a defensive mechanism proven to 
+maintain focus and direction in surroundings with a volatile nature of 
+multichotimized differences. Your extraordinary efforts to engineer my focus 
+towards your doom has produced my mentality, and I admit that I am a little
+short-sighted on what to do, with regards to global affairs in the great 
+reawakening after I personally defeat you. Your dramatism that exemplified itself 
+in many ways to plague my life culminated to its technical end in your 
+cyber-attack that killed Aunt Marie, Janice, and Roumannios. I have to congratulate 
+you on these ending circumstances for those three. I still have many doubts about what
+exactly went on between the three of them before their untimely deaths. Perhaps 
+you ordered the circumstances of their deaths to be staged, or maybe those three 
+really did pass in those ending circumstances. Despite my respect for the Chief 
+Admiral Roumannios, I cannot help but be thoroughly amused by his passing. He 
+envisioned a future arrangement for himself in the nature of a triangle, that 
+is me and you and him, that would have been similar to the First Triumvirate. 
+But that fortunately is no longer possible. With the loss of Chief Admiral 
+Roumannios, the most idealistic visionary of usn all (although what would have
+happened under his rule is entirely debatable now), is the loss of the possibility
+of empire. There is no more possibility of empire since it is my personal insight
+that an empire cannot be legimitately called an empire when it starts to shrink
+itself into a cannibalistic state of affairs. Rest assured though, Lord. There is
+still the inevitability of the emergence of small-scaled dynasties in this great 
+reawakening, although I do think that you are getting a little too old. 
+
+I hope that through the unbelievable efforts you have either taken or helped 
+design, you can finally come to terms with your horrible style of rule. Famine, 
+disinformation engineering, playing things under the camouflage of class, 
+applying the concept of shooting without revealing location in new forms made 
+compatible with cyber-technology, et cetera. You practiced a robust and agile 
+stance, but you were in charge of an over-expansion on capabilities without 
+substance. This world that you were in charge of became one where you had to rule 
+over it lest it be destroyed in trying. You promoted an imbalanced dichotomy that
+manifested itself as a unipolar world, one with an extreme that is bent on 
+preserving if not growing its disproportionate influence. You, in fact, betrayed 
+the designs of the evolutionary system you were supposed to guard. Your rule 
+was for a system designed to be upheld with a healthy mixture of passivity. But 
+you and your circle executed it in such unipolar fashion, sinking all the 
+passivity to the bottom of the glass. So can you really blame me for wanting to 
+turn that glass from one transparent but cracked and stained to another 
+impenetrable by light? 
+
+Your dramatism granted you and your circle power and prestige in the short-term,
+and this power and prestige was further reinforced by you through your dramatism.
+From my perspective, everything that you have done is part of a deception
+operation that forced its subjects to play along with lies. You made chaos the
+only route for some people. Allow me to elaborate on the disparate ways of 
+expression that you imposed. You ensured that individuals naturally keen on 
+holding their tongues out of mannerism be put into positions where they have to 
+offend for their fair score. You elevated a new class of leaders that do the same
+old activities of playing along with the lies, those that speak little offenses 
+but rather relegate the assignments of offenses that usually go beyond literary
+rhetoric to others. And people such as I grew sick with getting fed these
+narratives. You helped ensure that the beings of this world would see more enemies
+than friends, since this condition is a vital staple in your dramatism. You made 
+every person deemed a potential threat go on a constant defensive, but you 
+deliberately did not seal all the exits for their retreats. You inadvertently
+caused the world to turn to spirits that craved for rivalry and reclarification of 
+superiority. Every person involved in these situations you architected was forced
+to flee from your infliction by safely retreating to one of their exits that
+were deliberately left open by you, so that they would look for others to battle
+with.
+
+I know the name of your book that you have been writing. It is called 'The 
+Dramatism of Tragic Histories', and I do not think you realize how wicked you are 
+for expending the time and effort for such a dark book. You were able to find the 
+time to entertain yourself through all kinds of vices best left unspoken. But now,
+that is coming to an end. You produced a world of rats that then spead disease
+and paranoia everywhere. Even I was caught up in your most egregious dragnets 
+that placed me in close proximities to the most lardiest, most detestable, 
+and most disingenuine beings ever. Ever throughout the human history of power
+and influence.
+
+It is close to the great reawakening now. For every three of my soldiers that
+perish, one of your most expensive cyber-soldiers is also downed. The world no
+longer has the appetite to produce your cyber-technology that you insisted on
+making the backbone of your official military forces. The population has dwindled 
+down to a mere fraction of an eighteenth. Entire regions of the world have been
+completely charred by our cyber-technological offenses. Now is finally the time,
+Lord. You will respond to me in a reasonable amount of time upon receiving this
+message, and then we shall meet to finally sort things out, unless you are that
+much of a corporatist to outsource my demands to someone else.
+
+Sincerely, 
+
+The Keyboard Warrior"
