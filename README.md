@@ -3222,3 +3222,135 @@ much of a corporatist to outsource my demands to someone else.
 Sincerely, 
 
 The Keyboard Warrior"
+
+# Part XXXVII
+## the endtimes of a generation
+
+From: The Lord Commodore Marshall   
+To: The Keyboard Warrior
+
+"Such rich words you have to share on your pains and motives now. I am a
+little baffled, though, if it is entirely your pains that you think I am
+so responsible for inflicting upon you that motivate you. But there are
+many, from those believers in free will to those believers in a firm and
+rigid system of punishment and order, that will say that it is that your 
+motives which fuel your pains. At this point in time, it is obvious to note
+the words you have to exchange with me are nothing healthy or spectacular
+in spirit although they may provide some extraordinary persuasion through 
+their intellectual appearance, for it is not the betterment of any intellect
+that your aims have brought and will continue to bring if you have your
+way. Your rhetoric merely serve as tools of persuasion to align your audience
+with you as opposed to others in this world where you think it is your 
+world to solve by your whims.
+
+You say my book, 'The Dramatism of Tragic Histories', suits evil purposes
+but look at what you have amounted to at this point by playing into the
+dramatism that you so wholeheartedly think is my machination. You delude
+yourself, and mistake me as a kind of higher power that you must aspire to
+defeat due to its perceived fallaciousness. You have already committed 
+heresy if you are that adamant about your beliefs. But the last time I 
+checked, whatever order you think you belong to is nothing to talk or 
+rationalize about. It simply is the way it is, is what you think, and 
+you deserve a spot on top or somewhere near the top of it, the same order
+you think is on top of other orders. There is nothing wrong with your 
+thinking according to your own personal results. You were able to rise
+to a peak that granted you more control, but I hope that for your own
+sanity, you are less satisfied now with what you see in front of you
+than before your singleminded drive to do what you think can rectify everything
+back into a world that you want to dream and enjoy in. It is obvious to state you 
+already know what lies ahead of you, even if you are to personally defeat me. You 
+are in the dog pound, the biggest and nastiest dog that intends to rule over all 
+the other ones. As for me, despite my arrogance that I strongly show to you, I do 
+not believe I am best, and maybe I am that big bird that gets shot down by a 
+canine of such lowly disposition as you. But until then, I admit I will continue 
+laughing at you because I took the decision to soar when you could have disowned 
+whatever false loyalties you claimed to have and also soar. Do not try that 
+rhetorical device of proclaiming that every member of our species, or what is left 
+of it at this point, is a dog or supposed to be a dog, when you know full well 
+that dogs were bred from the predatory wolf so that they are still carnivorous but 
+subservient to the hand that feeds them, a subservience that is entirely due to 
+the methodologies and resources of the human species. Talk about false analogies 
+and the misrepresentation of crooked intentions to something unquestionably noble! 
+Just take a look at your good friend Chief Admiral Roumannios, who thought he was
+so sneaky by secretly working in cahoots with you.
+
+You know you are reaching your depths, keyboard warrior. In the event that you
+do manage to finally slay me, I hope you already have a plan to put into motion 
+because you really have to expect other people that previously aligned with you
+to set upon their own ideas to get rid of you. Your leadership has made your
+followers think very little about what to do other than to eat more, sleep more,
+and fight more. They are very much clueless although numerous, and without 
+purposes declared upon them like how a dog owner gives a defined area of space
+to their dog, they will resort to their habits of fighting more to eat more
+but they will only have themselves and you their leader to fight against.
+
+During all of these years in your rise to power, I became the strawman for your
+rhetoric. Granted, my forces represented you as a new kind of boogeyman but that
+is besides the point, since two wrongs do not make a right unless being right is
+the central question to begin with. I do not want your written or verbal response
+to why your rise completely coincided with the rapid disintegration of the civil 
+naturalness in society, because you do not need to put much thought or conscience
+in it to say that whatever flaws and blemishes done to rid the world of the big 
+problem that I supposedly pose is entirely for the promised great gains in the 
+renewed world afterwards.
+
+Were your conditions really that bad that you think so truly that people such as 
+I are responsible for? Do you really think that you have suffered beyond reason,
+or whatever human beings think about reason, due to the silent poison of snakes?
+Pride does not so easily get broken into a universal humility. Instead, it
+turns into something less than humility, more than subservience, and ever as
+dangerous as it was before it was broken. You say that I strove to make the world
+a more difficult place for people such as you with your ambitions, when it was 
+the forces that people such as I which actively worked to defend the remaining
+naturalness of civility based on a handful of principles to deter people 
+from faking it until they can make it. That would be what dishonesty truly is, you 
+see. Fakers as the makers are the drivers of deception operations if you are to 
+really want to use that term. Why is it that you think I applied such a 
+heavyhanded rule by sealing off the entrances to the promised lands when your 
+initiatives looked the other way to drill entrances to other places? Do you really 
+believe those initiatives to be that passive and innocent when they aim for 
+another construct that completely destroys if not exclude everything else? You 
+question who deserves the honor and what is supposed to be credited with merit. 
+Your initiatives will never bring together another land that can adequately 
+compensate any of your followers except by their own active efforts in gaining 
+through destroying.
+
+My grand goal of a world restored to a simpler civil paradigm with the 
+incorporation of technological advances, that I call Pax Cyberia, is no longer 
+possible because of your efforts. But at least my ideal of the solution is 
+forever better than your results, and you cannot prove otherwise anymore because 
+what has actualized is the indisputable turmoil. In my present state of affairs, I 
+was able to already strike your initiatives a fatal blow. Your forces are already 
+in doubt about the possible future in which they win when they still have my 
+forces and me to defeat. Through your drive, your forces managed to incorporate a 
+large number of the brilliant innovations that were guarded by my rule. But now, 
+you start to see the limits of simply taking and modifying things for your own 
+purposes. I will refrain from speaking more about your kind of corporatism 
+because I cannot help from break out in laughter at what I think about your
+incorporation.
+
+I hope that through all of this fiery conflict that I am granted the honor of
+striking you down with a cyber-sword of my own. My forces hacked into your
+infrastructure, and I was able to obtain cyber-blueprints of the technological
+construct behind your cyber-sword. My engineers swiftly came up with a cyber-sword
+that is longer and thinner, allowing for greater reach as well as strikes and
+defenses of a precisely agile nature. Because darkness continues to sweep over
+this world where only a small fraction of the populace remains alive, the
+cyber-capabilities of our swords have fallen much below their potentials. But it
+is all for the better, because now we can participate in a cyber-duel with our 
+cyber-swords in a physical setting.
+
+It is a good thing that you have finally mustered the kind of honest spirit to
+exchange words with me. Although the cumulative actions from each of our forces
+have blurred the lines between beliefs and practices amongst other contentions,
+there is still the great distinction of the motives and the duel between you
+the keyboard warrior and I the Lord Commodore Marshall. We will meet and fight to 
+the death so that we no longer have to secretly damn each other behind their 
+backs, feeding each of our followers narratives that they are forced into 
+positions to believe.
+
+Sincerely, 
+
+The Lord Commodore Marshall."
+
+# T...H...E.........E...N...D.........!...!
