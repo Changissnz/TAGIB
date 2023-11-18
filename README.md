@@ -3326,7 +3326,7 @@ forces and me to defeat. Through your drive, your forces managed to incorporate 
 large number of the brilliant innovations that were guarded by my rule. But now, 
 you start to see the limits of simply taking and modifying things for your own 
 purposes. I will refrain from speaking more about your kind of corporatism 
-because I cannot help from break out in laughter at what I think about your
+because I cannot help but break out in laughter at what I think about your
 incorporation.
 
 I hope that through all of this fiery conflict that I am granted the honor of
