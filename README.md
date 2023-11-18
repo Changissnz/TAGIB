@@ -3239,7 +3239,7 @@ the words you have to exchange with me are nothing healthy or spectacular
 in spirit although they may provide some extraordinary persuasion through 
 their intellectual appearance, for it is not the betterment of any intellect
 that your aims have brought and will continue to bring if you have your
-way. Your rhetoric merely serve as tools of persuasion to align your audience
+way. Your rhetoric merely serves as tools of persuasion to align your audience
 with you as opposed to others in this world where you think it is your 
 world to solve by your whims.
 
