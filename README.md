@@ -468,7 +468,7 @@ keyboard warrior! You and them could link together to form a keyboard army. Oh,
 what am I writing?! If the things you say you want on the internet actually become
 official policy, that would spell doom for people like me. I depend on the 
 good-natured generosity of those that are empathetic and appreciative of
-what people like me do! So please do not continue on with your pseudo-professional
+what people like I do! So please do not continue on with your pseudo-professional
 nonsensical politicking on the internet! I really do not want to see any of the things
 you say actually happen.
 
