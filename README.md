@@ -3233,7 +3233,7 @@ To: The Keyboard Warrior
 little baffled, though, if it is entirely your pains that you think I am
 so responsible for inflicting upon you that motivate you. But there are
 many, from those believers in free will to those believers in a firm and
-rigid system of punishment and order, that will say that it is that your 
+rigid system of punishment and order, that will say that it is your 
 motives which fuel your pains. At this point in time, it is obvious to note
 the words you have to exchange with me are nothing healthy or spectacular
 in spirit although they may provide some extraordinary persuasion through 
